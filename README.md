@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Phu</h1>
-<h3 align="center">A computer science student from Thailand</h3>
+<h3 align="center">A Computer Science student from Thailand</h3>
 
 - 🔭 I’m currently working on [mindCRA Website](https://mindcra.com/)
 
