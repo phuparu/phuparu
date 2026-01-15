@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **phumiphat.140@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGD5_jkf7g/Q6o1fddXOTkuCkOTk_W3ug/edit?utm_content=DAGD5_jkf7g&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGD5_jkf7g/Q6o1fddXOTkuCkOTk_W3ug/edit?utm_content=DAGD5_jkf7g&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [[https://www.canva.com/design/DAGD5_jkf7g/Q6o1fddXOTkuCkOTk_W3ug/edit?utm_content=DAGD5_jkf7g&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGRTJKHzW4/UIrM9gZaV80JLWYgRdnnug/edit?utm_content=DAGRTJKHzW4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)](https://www.canva.com/design/DAGD5_jkf7g/Q6o1fddXOTkuCkOTk_W3ug/edit?utm_content=DAGD5_jkf7g&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact **Photographer, Music, Eager to learn new things**
 
