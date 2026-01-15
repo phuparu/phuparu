@@ -1,15 +1,13 @@
 <h1 align="center">Hi 👋, I'm Phu</h1>
 <h3 align="center">A Computer Science student from Thailand</h3>
 
-- 🔭 I’m currently working on [mindCRA Website](https://mindcra.com/)
-
-- 🌱 I’m currently learning **NextJS, Application developer**
+- 🌱 I’m currently learning **Application development, System Analyst Role**
 
 - 💬 Ask me about **React, CSS, TailwindCSS**
 
 - 📫 How to reach me **phumiphat.140@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGRTJKHzW4/UIrM9gZaV80JLWYgRdnnug/edit?utm_content=DAGRTJKHzW4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton]
+- 📄 Know about my experiences [CV](https://www.canva.com/design/DAGRTJKHzW4/UIrM9gZaV80JLWYgRdnnug/edit?utm_content=DAGRTJKHzW4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact **Photographer, Music, Eager to learn new things**
 
